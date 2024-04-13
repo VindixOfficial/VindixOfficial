@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Vindix
+- 👀 I’m interested in Program, draw, animate, create music
+- 🌱 I’m currently learning Program, draw, animate, create music
+- 📫 How to reach me discord:vindix1
